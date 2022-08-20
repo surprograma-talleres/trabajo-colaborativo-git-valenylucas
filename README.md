@@ -1,6 +1,6 @@
 🌐 ¡Hola mundo!
 
-👋 Me llamo Valentino
-🗺️ y actualmente estoy en mi casa.
+👋 Me llamo Lucas
+🗺️ y actualmente estoy en Ituzaingo.
 
 📆 En los próximos días, me gustaría comer una milanesa.
